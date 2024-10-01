@@ -1,5 +1,7 @@
 # Hello World 👋🏻
 
+### Drashti Bharatbhai Dobariya
+
 *I completed my Bachelor of Computer Application at Gls University, Ahmedabad in India.*
 
 *Currently pursuing first year Diploma in Interactive Design- Web design and Development Major at Sourthern Alberta Institute of Technology [SAIT](https://www.sait.ca/), Calgary in Canada.*
