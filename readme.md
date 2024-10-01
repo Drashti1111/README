@@ -17,3 +17,7 @@
   1. English
   2. Hindi
   3. Gujarati
+
+**Contact**
+
+[Email](DrashtiBharatbhai.Dobariya@edu.sait.ca)
