@@ -22,4 +22,4 @@
 
 **Contact**
 
-[Email](DrashtiBharatbhai.Dobariya@edu.sait.ca)
+Email: [(DrashtiBharatbhai.Dobariya@edu.sait.ca](DrashtiBharatbhai.Dobariya@edu.sait.ca)
